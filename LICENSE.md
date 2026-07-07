@@ -1,4 +1,4 @@
-# 
+# Avast Premium Security provides multi-layered security to protect your devices and data from all types of cyber threats.
 
 
 
